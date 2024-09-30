@@ -18,8 +18,8 @@
 
 ## Let's Connect
 
-- [LinkedIn](https://www.linkedin.com/in/thi-pham)
-- [Email](mailto:thi.pham@example.com)
+- [LinkedIn](https://www.linkedin.com/in/thi-pham-898537158/)
+- [Email](thipm.16@gmail.com)
 ## Fun Fact
 
 - 🐶 I have a dog named Pluto who loves swimming!
